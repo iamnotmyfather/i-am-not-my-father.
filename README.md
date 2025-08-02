@@ -6,5 +6,7 @@ Press one of these numbers to read about me or something.
 [1](rentry.co/sxtxnic-pxnix) [2](rentry.co/undxrpaid-workxr) [3](rentry.co/zxmbie-syndrxme)
 
 1 • teen mike
+
 2 • adult mike
+
 3 • corpse mike
